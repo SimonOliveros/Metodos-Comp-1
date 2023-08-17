@@ -1,2 +1,2 @@
-# Metodos-Comp-1
+# Repositorio-SimónOliverosyNicolásCaribana
 Acá subiré mis trabajos
